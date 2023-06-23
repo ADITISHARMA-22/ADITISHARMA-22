@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I am a tech enthusiast with good developing skills . <br>I love to learn and explore more in this area. <br>Currently i am in my last year of BE CSE degree .  
+Hi I am a tech enthusiast with good developing skills . <br>I love to learn and explore more in this area. <br>Currently i am in my last year of BE CSE degree and searching for good oppurtunities where I can upskill myself  .  
 
 
 ## 🌐 Socials:
